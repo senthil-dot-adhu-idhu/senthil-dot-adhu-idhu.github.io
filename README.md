@@ -1,3 +1,3 @@
-# senthil-dot-adhu-idhu.github.io
+# [My Personal Website](https://senthil-dot-adhu-idhu.github.io/)
 
-https://senthil-dot-adhu-idhu.github.io/
+
